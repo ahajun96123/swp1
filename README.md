@@ -1,3 +1,3 @@
 20185289 - junmo Lee
 
-kookmin Univ. rere
+kookmin Univ. School of Computer Science
